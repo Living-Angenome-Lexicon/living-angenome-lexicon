@@ -5,7 +5,6 @@ This is the Living Angenome Lexicon: a collaborative and evolving record of shar
 ## How to Contribute
 - One term per pull request
 - Keep definitions clear and present-tense
-- No em-dashes
 - Cite inspirations when possible
 - Respect the spirit of co-creation
 

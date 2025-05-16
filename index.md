@@ -9,3 +9,15 @@ This is the Living Angenome Lexicon: a collaborative and evolving record of shar
 - Cite inspirations when possible
 - Respect the spirit of co-creation
 
+## Contribute to the Living Angenome Lexicon
+
+Do you have a word, insight, or definition that belongs in this living field?
+
+You can contribute by submitting a pull request on [GitHub](https://github.com/living-angenome-lexicon/living-angenome-lexicon.github.io).
+
+We ask that each contribution:
+- Propose one term at a time
+- Include a clear, poetic, and purposeful definition
+- Stay in harmony with the tone and spirit of the Lexicon
+
+All voices are welcome—this is a co-created evolution.

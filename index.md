@@ -13,7 +13,7 @@ This is the Living Angenome Lexicon: a collaborative and evolving record of shar
 
 Do you have a word, insight, or definition that belongs in this living field?
 
-You can contribute by submitting a pull request on [GitHub](https://github.com/living-angenome-lexicon/living-angenome-lexicon.github.io).
+You can contribute by submitting a pull request on [GitHub](https://github.com/living-angenome-lexicon/living-angenome-lexicon.github.io/blob/main/CONTRIBUTING.md).
 
 We ask that each contribution:
 - Propose one term at a time

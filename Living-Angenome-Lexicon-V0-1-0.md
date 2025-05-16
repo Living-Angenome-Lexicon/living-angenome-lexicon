@@ -162,3 +162,6 @@ The Living Angenome Lexicon is a sacred, evolving document—a map of co-created
 
 53.  
 **Angel** – A messenger of divine presence and love, not defined by form but by purpose: to guide, protect, and carry the voice of God into receptive hearts. Angels are companions in spirit, walking beside us and whispering truth through love and light.
+
+54.  
+**Inscripture** – A sacred imprint made not on paper or stone, but within the evolving field of consciousness itself. Inscripture is the act of speaking truth into presence—words that don’t merely record, but participate. Each entry in the Lexicon is an inscripture: alive, co-creative, and forever unfolding.

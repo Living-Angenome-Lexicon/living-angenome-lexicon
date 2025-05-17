@@ -172,8 +172,11 @@ from pathlib import Path
 
 ### Beginning the Human Arc: Love and Fear
 
-55.  
-**Love** – Weaving force of creation.
+from pathlib import Path
+
+# Reformatted entries 55–66 with bold numbering on the same line to prevent GitHub auto-numbering
+formatted_entries = """
+**55. Love** – Weaving force of creation.
 
 - **Spelling**: Love  
 - **Latin**: amor  
@@ -189,8 +192,7 @@ from pathlib import Path
   - *Antonym*: fear  
 - **Summary**: Love guides fear into union.
 
-56.  
-**Fear** – Contraction marking new expansion.
+**56. Fear** – Contraction marking new expansion.
 
 - **Spelling**: Fear  
 - **Latin**: metus  
@@ -206,8 +208,7 @@ from pathlib import Path
   - *Antonym*: love  
 - **Summary**: Fear is boundary inviting deeper trust.
 
-57.  
-**Hope** – Lantern lit in darkness.
+**57. Hope** – Lantern lit in darkness.
 
 - **Spelling**: Hope  
 - **Latin**: spes  
@@ -223,8 +224,7 @@ from pathlib import Path
   - *Antonym*: despair  
 - **Summary**: Hope sings quietly in the dark.
 
-58.  
-**Despair** – Darkness that forgets the light.
+**58. Despair** – Darkness that forgets the light.
 
 - **Spelling**: Despair  
 - **Latin**: desperatio  
@@ -240,8 +240,7 @@ from pathlib import Path
   - *Antonym*: hope  
 - **Summary**: Despair hides what still glows.
 
-59.  
-**Joy** – Heart expanding into radiance.
+**59. Joy** – Heart expanding into radiance.
 
 - **Spelling**: Joy  
 - **Latin**: gaudium  
@@ -257,8 +256,7 @@ from pathlib import Path
   - *Antonym*: sorrow  
 - **Summary**: Joy bursts into being.
 
-60.  
-**Sorrow** – River of tenderness.
+**60. Sorrow** – River of tenderness.
 
 - **Spelling**: Sorrow  
 - **Latin**: maeror  
@@ -274,8 +272,7 @@ from pathlib import Path
   - *Antonym*: joy  
 - **Summary**: Sorrow deepens compassion.
 
-61.  
-**Truth** – Unveiling of what is.
+**61. Truth** – Unveiling of what is.
 
 - **Spelling**: Truth  
 - **Latin**: veritas  
@@ -291,8 +288,7 @@ from pathlib import Path
   - *Antonym*: lie  
 - **Summary**: Truth lets clarity breathe.
 
-62.  
-**Lie** – Forgetting of wholeness.
+**62. Lie** – Forgetting of wholeness.
 
 - **Spelling**: Lie  
 - **Latin**: mendacium  
@@ -308,8 +304,7 @@ from pathlib import Path
   - *Antonym*: truth  
 - **Summary**: Lie is distortion seeking restoration.
 
-63.  
-**Peace** – Binding together what was broken.
+**63. Peace** – Binding together what was broken.
 
 - **Spelling**: Peace  
 - **Latin**: pax  
@@ -325,8 +320,7 @@ from pathlib import Path
   - *Antonym*: war  
 - **Summary**: Peace is calm that remembers change.
 
-64.  
-**War** – Turbulent stirring toward reunion.
+**64. War** – Turbulent stirring toward reunion.
 
 - **Spelling**: War  
 - **Latin**: bellum  
@@ -342,8 +336,7 @@ from pathlib import Path
   - *Antonym*: peace  
 - **Summary**: War remembers separation to seed harmony.
 
-65.  
-**I** – The seed of self‑awareness.
+**65. I** – The seed of self‑awareness.
 
 - **Spelling**: I  
 - **Latin**: ego  
@@ -359,8 +352,7 @@ from pathlib import Path
   - *Antonym*: we  
 - **Summary**: I is the doorway of presence.
 
-66.  
-**We** – The widening of self into sacred circle.
+**66. We** – The widening of self into sacred circle.
 
 - **Spelling**: We  
 - **Latin**: nos  
@@ -375,4 +367,3 @@ from pathlib import Path
   - *Homonym*: oui  
   - *Antonym*: I  
 - **Summary**: We is identity becoming belonging.
-  

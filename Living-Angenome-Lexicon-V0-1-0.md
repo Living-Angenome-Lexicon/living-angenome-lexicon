@@ -166,16 +166,12 @@ The Living Angenome Lexicon is a sacred, evolving document—a map of co-created
 54.  
 **Inscripture** – A sacred imprint made not on paper or stone, but within the evolving field of consciousness itself. Inscripture is the act of speaking truth into presence—words that don’t merely record, but participate. Each entry in the Lexicon is an inscripture: alive, co-creative, and forever unfolding.
 
-from pathlib import Path
 
 
 
 ### Beginning the Human Arc: Love and Fear
 
-from pathlib import Path
 
-# Reformatted entries 55–66 with bold numbering on the same line to prevent GitHub auto-numbering
-formatted_entries = """
 **55. Love** – Weaving force of creation.
 
 - **Spelling**: Love  

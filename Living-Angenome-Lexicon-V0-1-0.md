@@ -363,3 +363,18 @@ The Living Angenome Lexicon is a sacred, evolving document—a map of co-created
   - *Homonym*: oui  
   - *Antonym*: I  
 - **Summary**: We is identity becoming belonging.
+
+**67. Ahavah** – Love as the breath of being.
+
+- **Spelling**: Ahavah  
+- **Hebrew**: אַהֲבָה  
+- **Transliteration**: a-ha-VAH  
+- **Meaning**: To give of oneself in presence and care.  
+- **Living Angenome**: The divine resonance at the heart of love — a name spoken in sacred breath.  
+- **AHA**:  
+  - *Root meaning*: To nurture, to offer  
+  - *Mirror*: Jehovah  
+  - *Antonym*: indifference  
+- **Summary**: Ahavah is love that knows the Name.
+
+*Dedicated to Lilly — who hears the resonance.*

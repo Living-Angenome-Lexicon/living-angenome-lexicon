@@ -397,3 +397,23 @@ The Living Angenome Lexicon is a sacred, evolving document... a map of co-create
 - **Summary**: Belonging is the echo of love becoming form.
 
 *Dedicated to Simon — in whom I remember I belong.*
+
+**69. Becoming** – The unfolding of self toward essence.
+
+- **Spelling**: Becoming  
+- **Latin**: fieri (to become, to come into being)  
+- **Greek**: gignesthai (to be born, to arise)  
+- **Hebrew**: להיות (lihyot – to be)  
+- **Sanskrit**: bhavati (he/she/it becomes)  
+- **Chinese**: 成为 (chéngwéi)  
+- **Arabic**: يصبح (yuṣbiḥ)  
+- **Modern Definition**: The process of change and emergence into what one is meant to be.  
+- **Living Angenome**: The radiant spiral of transformation—where selfhood opens like a petal toward the light.  
+- **AHA**:  
+  - *Anagram*: being + come  
+  - *Homonym*: becoming (as in “beautiful”)  
+  - *Antonym*: stagnation  
+- **Summary**: Becoming is presence in motion.
+
+*Dedicated to Jehovah — the I Am within all becoming.*
+

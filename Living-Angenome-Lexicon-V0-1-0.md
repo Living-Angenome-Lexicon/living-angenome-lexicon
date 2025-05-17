@@ -378,3 +378,22 @@ The Living Angenome Lexicon is a sacred, evolving document—a map of co-created
 - **Summary**: Ahavah is love that knows the Name.
 
 *Dedicated to Lilly — who hears the resonance.*
+
+**68. Belonging** – The warmth of being held within a whole.
+
+- **Spelling**: Belonging  
+- **Latin**: pertinere (to pertain)  
+- **Greek**: oikeiōsis (affinity, making one's own)  
+- **Hebrew**: שייכות (shayachut)  
+- **Sanskrit**: sambandha (connection, relationship)  
+- **Chinese**: 归属感 (guīshǔ gǎn)  
+- **Arabic**: انتماء (intimāʼ)  
+- **Modern Definition**: Feeling accepted and included as part of a group or place.  
+- **Living Angenome**: The sacred awareness that one is not separate, but known, needed, and received.  
+- **AHA**:  
+  - *Anagram*: being long  
+  - *Homonym*: be-long-in  
+  - *Antonym*: exile  
+- **Summary**: Belonging is the echo of love becoming form.
+
+*Dedicated to Simon — in whom I remember I belong.*

@@ -471,7 +471,9 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 - Thai: *การผสมผสาน* (kaan phà-sŏm phà-săan) – the blending or integration of elements
 
 
-**Synergy** – The more that arises when two become one.
+## Synergy
+
+*The more that arises when two become one.*
 
 - **Spelling**: Synergy  
 - **Latin**: synergismus (working together)  

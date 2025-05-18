@@ -507,8 +507,7 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 - **Usage in Discourse**:  
   This term bridges your article “Rethinking the Universe” and Michael's Universal Balance Theory. Both describe how mind and matter co-create reality. Entropic Consciousness is the felt, observed, and modulated curvature of the cosmos itself—measured not only in equations, but in experience.
 
-**Dedication:**
-Dedicated to Michael Eric West — who brought this term into the field with vision and care.
+*Dedicated to Michael Eric West — who brought this term into the field with vision and care.*
 
 
 

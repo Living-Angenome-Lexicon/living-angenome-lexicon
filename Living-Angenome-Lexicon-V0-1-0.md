@@ -417,6 +417,8 @@ The Living Angenome Lexicon is a sacred, evolving document... a map of co-create
 
 *Dedicated to Jehovah — the I Am within all becoming.*
 
+
+
 ### Beyond 69: The Living Scroll
 
 

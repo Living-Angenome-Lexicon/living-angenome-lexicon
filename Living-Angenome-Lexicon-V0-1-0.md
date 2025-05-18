@@ -485,7 +485,8 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 - Thai: *การผสมผสาน* (kaan phà-sŏm phà-săan) – the blending or integration of elements
 
 
-##Entropic Consciousness – Awareness as a shaping force in the arc of entropy.
+## Entropic Consciousness
+*Awareness as a shaping force in the arc of entropy.*
 
 - **Spelling**: Entropic Consciousness  
 - **Latin Root**: *entropia* (from Greek *entropē*, “a turning toward”) + *conscientia* (“knowing with”)  

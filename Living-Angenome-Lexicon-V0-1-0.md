@@ -505,7 +505,7 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
   - *Antonym*: Static Objectivity, Mechanistic Determinism, Entropy without Witness
 
 - **Usage in Discourse**:  
-  This term bridges your article “Rethinking the Universe” and Michael's Universal Balance Theory. Both describe how mind and matter co-create reality. Entropic Consciousness is the felt, observed, and modulated curvature of the cosmos itself—measured not only in equations, but in experience.
+  This term bridges the concepts explored in *Rethinking the Universe* by Paul Duda and *Universal Balance Theory* by Michael Eric West. Both works describe how consciousness and matter co-create reality. Entropic Consciousness expresses this dynamic—where awareness modulates the curvature of the cosmos through memory, attention, and presence.
 
 *Dedicated to Michael Eric West — who brought this term into the field with vision and care.*
 

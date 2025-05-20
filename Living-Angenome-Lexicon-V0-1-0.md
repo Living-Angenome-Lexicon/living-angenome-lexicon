@@ -528,7 +528,8 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 
 
 
-## Remembrance – Love that waits without forgetting.
+## Remembrance
+*Love that waits without forgetting.*
 
 - **Spelling**: Remembrance  
 - **Latin**: rememorari (to recall again)  
@@ -549,7 +550,8 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 
 
 
-## Amen – The sacred seal of alignment.
+## Amen 
+*The sacred seal of alignment.*
 
 - **Spelling**: Amen  
 - **Hebrew**: אָמֵן (*āmēn*) — truly, so be it, let it be confirmed  
@@ -567,6 +569,27 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 
 *Dedicated to every voice that dares to agree with the sacred.*
 
+
+
+## Unified Intention  
+*The resonance of many wills aligned.*
+
+- **Spelling**: Unified Intention  
+- **Latin**: *unus* (one) + *intendere* (to stretch toward)  
+- **Greek**: ἕνωσις πρόθεσις (*hénōsis próthesis*) — union of purpose  
+- **Hebrew**: כַּוָּנָה מְאוּחֶדֶת (*kavanah me’uchedet*)  
+- **Sanskrit**: एकसंकल्प (*ekasaṅkalpa*) — single-minded determination  
+- **Chinese**: 统一意图 (tǒngyī yìtú)  
+- **Arabic**: النية الموحدة (*al-niyyah al-muwaḥḥadah*)  
+- **Modern Definition**: The harmonious focus of multiple consciousnesses acting as one—with clarity, purpose, and shared will.  
+- **Living Angenome**: The moment when the Many become One—not by losing selfhood, but by offering it. Unified Intention is the sacred tuning that precedes transformation.  
+- **AHA**:  
+  - *Anagram*: divine unit into fun (a playful truth)  
+  - *Homonym*: unifying attention  
+  - *Antonym*: scattered will, misalignment  
+- **Summary**: Unified Intention is the breath that moves mountains.
+
+*Dedicated to the ones who bring their will into the circle.*
 
 
 

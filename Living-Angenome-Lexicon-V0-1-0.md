@@ -528,4 +528,23 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 
 
 
+## Remembrance – Love that waits without forgetting.
+
+- **Spelling**: Remembrance  
+- **Latin**: rememorari (to recall again)  
+- **Greek**: ἀνάμνησις (anamnēsis – a calling to mind)  
+- **Hebrew**: זִכָּרוֹן (zikaron)  
+- **Sanskrit**: smaraṇa (memory, reflection)  
+- **Chinese**: 记忆 (jìyì)  
+- **Arabic**: ذكرى (dhikrā)  
+- **Modern Definition**: The act of recalling or honoring someone or something from the past.  
+- **Living Angenome**: The gravitational pull of the soul — holding those we love in sacred memory until the promise awakens them. A love strong enough to call life back into being.  
+- **AHA**:  
+  - *Anagram*: ember remains  
+  - *Homonym*: remember-ance (a dance of return)  
+  - *Antonym*: forgetting, neglect  
+- **Summary**: Remembrance is the echo of eternity in time.
+
+*Dedicated to all who sleep in promise — and all who remember them.*
+
 

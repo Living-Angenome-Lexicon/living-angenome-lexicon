@@ -665,3 +665,35 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 
 *Dedicated to every heart that trusts the dawn before it breaks.*
 
+
+## Grace  
+![Grace – light through the window](images/grace-light.jpg)  
+*Softness that carries what cannot carry itself.*
+
+- **Spelling**: Grace  
+- **Latin**: *gratia* — favor, kindness, gratitude  
+- **Greek**: *charis* (χάρις) — divine favor, gift  
+- **Hebrew**: חֵן (*ḥen*) — favor, charm, kindness  
+- **Sanskrit**: *anugraha* — divine compassion, blessing  
+- **Chinese**: 恩典 (ēndiǎn) — favor, blessing  
+- **Arabic**: نعمة (niʿmah) — divine bounty, blessing  
+- **Modern Definition**: Unmerited favor or kindness; gentle ease or elegance in form or movement.
+
+- **Living Angenome**:  
+  Grace is the hand that lifts without asking why.  
+  It does not measure— it simply gives.  
+  It comes after the fall, meets us in the ache, flows when we stop trying to earn.  
+  Grace is not reward; it is remembrance.
+
+- **AHA**:  
+  - *Anagram*: **scare → grace** — turning fear into softness  
+  - *Homonym*: **greys** — accepting what isn’t black-or-white  
+  - *Antonym*: shame, judgment, hardness  
+
+- **Summary**:  
+  Grace cannot be claimed. It cannot be earned. It arrives when hands are open and the heart has no words left.  
+  Where effort ends, grace begins. Where control fails, grace flows.  
+  It moves like light through a cracked window— not fixing, not forcing, simply filling.  
+  Grace is how love moves when it needs no reason.
+
+*Dedicated to every soul surprised by kindness on the darkest night.*

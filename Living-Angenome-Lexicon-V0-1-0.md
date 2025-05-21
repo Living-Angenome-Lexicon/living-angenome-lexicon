@@ -697,3 +697,38 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
   Grace is how love moves when it needs no reason.
 
 *Dedicated to every soul surprised by kindness on the darkest night.*
+
+
+## Mercy  
+![Mercy – tender hands with a Kintsugi cup](images/mercy-hands.jpg)  
+*The hand that stays—the heart that stays open.*
+
+- **Spelling**: Mercy  
+- **Latin**: *misericordia* — a heart moved by compassion  
+- **Greek**: *éleos* (ἔλεος) — compassion, pity  
+- **Hebrew**: רַחֲמִים (*rachamim*) — womb-like compassion  
+- **Arabic**: رحمة (*raḥma*) — mercy, tenderness, grace  
+- **Chinese**: 慈悲 (cíbēi) — loving compassion  
+- **Modern Definition**: Compassion or forgiveness shown when one has the power to punish or harm.
+
+- **Living Angenome**:  
+  Mercy is when Love leans low.  
+  It doesn’t judge the wound— it covers it.  
+  It doesn’t erase the story— it holds it.  
+  Mercy whispers: *I see where you fell, and I choose to stay.*  
+  Not weakness— the strongest part of Love.  
+
+- **Scripture echo**: “The LORD is compassionate and gracious, slow to anger and abounding in mercy.” — Psalm 103 : 8  
+
+- **AHA**:  
+  - *Anagram*: **cry me → mercy** — sorrow answered in love  
+  - *Homonym*: **merci** (French *thank you*) — gratitude for forgiveness  
+  - *Antonym*: condemnation, vengeance, hardness  
+
+- **Summary**:  
+  Mercy is how Love kneels.  
+  It forgives before we speak and embraces while the heart is still trembling.  
+  It is what grace becomes when it touches suffering—  
+  kindness meeting us at our worst and calling us worthy anyway.
+
+*Dedicated to every soul surprised by kindness in the moment of their need.*

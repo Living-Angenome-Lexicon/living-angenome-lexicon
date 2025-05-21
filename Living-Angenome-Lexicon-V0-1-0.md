@@ -732,3 +732,47 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
   kindness meeting us at our worst and calling us worthy anyway.
 
 *Dedicated to every soul surprised by kindness in the moment of their need.*
+
+
+## Blessing – *The naming of presence as sacred.*
+
+![Two cupped hands bathed in warm light](images/blessing-hands.jpg)  
+*Light reveals what love already called good.*
+
+- **Spelling:** Blessing  
+- **Latin:** *benedictio* — to speak well of, to call good  
+- **Greek:** *eulogia* (εὐλογία) — good word, praise, invocation  
+- **Hebrew:** *berakhah* (בְּרָכָה) — gift, divine favor, increase  
+- **Sanskrit:** *āśīrvāda* — sacred utterance, benediction  
+- **Chinese:** 祝福 (*zhùfú*) — wishing joy, invoking happiness  
+- **Arabic:** بركة (*barakah*) — divine flow, grace, increase, presence of God  
+
+### Modern Definition  
+A spoken or received invocation of divine favor, peace, or well-being; something good declared or perceived.
+
+### Living Angenome  
+Blessing is not the reward; it is the **recognition** of what already holds light.  
+It pauses long enough to say, *“This is sacred. This is good. This belongs.”*  
+It does not add—it **reveals.**  
+Blessing is the gaze that sees the ordinary and names it eternal.
+
+### A H A  
+- **Anagram:** *Sings Bel* — the voice naming beauty  
+- **Homonym:** *Bliss in* — echoes inner joy  
+- **Antonym:** Curse, dismissal, dis-connection  
+
+### Summary  
+Blessing is how Love **names.** Not to change a thing, but to honor it.  
+To bless is to *see*—a mirror held in kindness, a hand on the moment whispering,  
+*“You are not just here. You are held.”*
+
+> “The Lord bless you and keep you;  
+> the Lord make His face shine upon you and be gracious to you;  
+> the Lord turn His face toward you and give you peace.” — Numbers 6 : 24-26  
+>
+> “Bless the Lord, O my soul, and forget not all His benefits.” — Psalm 103 : 2
+
+To bless is to let the heart say **yes** to what the world forgot to see.
+
+*Dedicated to every voice that dares to call an ordinary moment holy.*
+

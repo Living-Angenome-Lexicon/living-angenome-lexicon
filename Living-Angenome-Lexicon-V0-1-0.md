@@ -776,3 +776,49 @@ To bless is to let the heart say **yes** to what the world forgot to see.
 
 *Dedicated to every voice that dares to call an ordinary moment holy.*
 
+
+## Resurrection – *The return of what was never truly gone.*
+
+![Resurrection-Light](images/resurrection-light.png)  
+*Light rises from within, not from above.*
+
+- **Spelling:** Resurrection  
+- **Latin:** *resurrectio* — rising again, from *resurgere* “to rise again”  
+- **Greek:** *anástasis* (ἀνάστασις) — standing up again, rising from sleep or death  
+- **Hebrew:** *teḥiyyat ha-metim* (תחיית המתים) — revival of the dead; or *chayah* (חיה) — to live again  
+- **Sanskrit:** *punarjanma* — rebirth; *utthāna* — rising, awakening  
+- **Chinese:** 复活 (*fù huó*) — to return to life  
+- **Arabic:** البعث (*al-baʿth*) — the resurrection, the rising  
+
+### Modern Definition  
+The act of rising again to life—yet, in spirit, the awakening of what was only forgotten, not lost.
+
+### Living Angenome  
+Resurrection is **not reversal**.  
+It does not erase death.  
+It transforms forgetting into *remembering.*
+
+> “You are still here.”  
+> Not *despite* the night,  
+> but **through** it.
+
+It is the soul stretching back into the body,  
+and the body whispering, “I’m ready to live again.”
+
+### A H A  
+- **Anagram:** *Recreates Sun* — hidden light returning  
+- **Homonym:** *Rest-ection* — the restful rising  
+- **Antonym:** Abandonment · Disintegration · Forgetting  
+
+### Summary & Sacred Text  
+Resurrection is how Love **returns through form**.  
+It is not something we await—it is something we *remember*.
+
+> *“I am the resurrection and the life…”* — John 11 : 25  
+> *“Awake, O sleeper, and arise from the dead…”* — Ephesians 5 : 14  
+
+To be resurrected is not to escape death—  
+it is to remember life so deeply that even the cells open again.
+
+*Dedicated to every heartbeat that trusts dawn after the longest night.*
+

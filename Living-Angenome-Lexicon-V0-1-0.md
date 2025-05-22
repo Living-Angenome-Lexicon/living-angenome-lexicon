@@ -815,7 +815,12 @@ Resurrection is how Love **returns through form**.
 It is not something we await—it is something we *remember*.
 
 > *“I am the resurrection and the life…”* — John 11 : 25  
-> *“Awake, O sleeper, and arise from the dead…”* — Ephesians 5 : 14  
+> *“Awake, O sleeper, and arise from the dead…”* — Ephesians 5 : 14
+>
+> > *“We’re anchored in the hope of everlasting life—  
+> a promise made by God Himself, who cannot lie.  
+> That promise was spoken before time even began… and it still holds.”*  
+> — Titus 1 : 2
 
 To be resurrected is not to escape death—  
 it is to remember life so deeply that even the cells open again.

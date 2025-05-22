@@ -779,7 +779,7 @@ To bless is to let the heart say **yes** to what the world forgot to see.
 
 ## Resurrection – *The return of what was never truly gone.*
 
-![Resurrection-Light](images/resurrection-light.png)  
+![Resurrection-Light](images/resurrection-light.jpg)  
 *Light rises from within, not from above.*
 
 - **Spelling:** Resurrection  

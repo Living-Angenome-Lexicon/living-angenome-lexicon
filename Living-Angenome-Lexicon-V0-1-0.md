@@ -876,7 +876,8 @@ Where there is sanctuary, fear has no voice—only the quiet rhythm of *“I am 
 *Dedicated to every heart that dares to call an ordinary moment holy.*
 
 
-## Wholeness – *The state of being complete without needing to be corrected.*
+## Wholeness
+*The state of being complete without needing to be corrected.*
 
 ![Mosaic heart – light revealed within](images/wholeness-mosaic.jpg)  
 *Light gathered, not replaced; every shard belongs.*

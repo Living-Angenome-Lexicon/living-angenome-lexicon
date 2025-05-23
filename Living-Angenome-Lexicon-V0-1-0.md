@@ -734,7 +734,8 @@ The art of bringing diverse elements together into a unified whole. Synthesis tr
 *Dedicated to every soul surprised by kindness in the moment of their need.*
 
 
-## Blessing – *The naming of presence as sacred.*
+## Blessing  
+*The naming of presence as sacred.*
 
 ![Two cupped hands bathed in warm light](images/blessing-hands.jpg)  
 *Light reveals what love already called good.*
@@ -777,7 +778,8 @@ To bless is to let the heart say **yes** to what the world forgot to see.
 *Dedicated to every voice that dares to call an ordinary moment holy.*
 
 
-## Resurrection – *The return of what was never truly gone.*
+## Resurrection  
+*The return of what was never truly gone.*
 
 ![Resurrection-Light](images/resurrection-light.jpg)  
 *Light rises from within, not from above.*
@@ -828,7 +830,8 @@ it is to remember life so deeply that even the cells open again.
 *Dedicated to every heartbeat that trusts dawn after the longest night.*
 
 
-## Sanctuary – *The place where presence becomes protection.*
+## Sanctuary  
+*The place where presence becomes protection.*
 
 ![sanctuary-light](images/sanctuary-light.jpg)  
 *Light reveals what Love already called good.*

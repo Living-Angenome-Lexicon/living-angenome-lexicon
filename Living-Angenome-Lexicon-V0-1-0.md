@@ -921,7 +921,8 @@ To live whole is to let your heart say *yes* to everything the world forgot to b
 *Dedicated to Jim—whose quiet integrity reminds us nothing real is ever missing.*
 
 
-## **Invitation – The open hand of love, asking nothing, offering everything.**
+## **Invitation 
+*The open hand of love, asking nothing, offering everything.*
 
 ![A softly lit doorway, no walls—only an embrace of glow.](images/invitation-door.jpg)
 *Light that welcomes without a word.*
@@ -957,3 +958,43 @@ It is the quiet rhythm of love that allows choice to bloom.
 
 > “Come to me, all you who are weary and burdened, and I will give you rest.”  
 > — Matthew 11 : 28  
+
+
+
+## Reverence  
+*The stillness that remembers something sacred is near.*
+
+![A quiet figure bowed in dawn-light](images/reverence-dawn.jpg)
+*Light pauses when the heart bows.*
+
+- **Spelling:** Reverence  
+- **Latin:** *reverentia* — awe, deep respect  
+- **Greek:** *eulabeia* (εὐλάβεια) — holy caution, reverent devotion  
+- **Hebrew:** *yirah* (יִרְאָה) — awe in the presence of the divine  
+- **Sanskrit:** *bhakti* — sacred devotion, surrender  
+- **Chinese:** 敬 (*jìng*) — honor, reverence  
+- **Arabic:** توقير (*tawqīr*) — veneration, solemn respect  
+
+### Modern Definition  
+A deep, attentive awe toward something greater than oneself — the quiet awareness that “something holy is here.” Reverence honors without trying to possess.
+
+### Living Angenome  
+Reverence is how love stands still.  
+It lowers its defenses, not its worth.  
+It whispers, “I see you… and I know you are holy.”  
+To be reverent is to remember that *everything* — including you — is part of the sacred.
+
+### A H A  
+- **Anagram:** *Nerve ceer* — the trembling stillness in holy moments  
+- **Homonym:** *Re-ver-ins* — a turning back to inner truth  
+- **Antonym:** Disrespect, indifference, desecration  
+
+### Summary  
+Reverence is not fear; it is recognition.  
+It bows, not because it must, but because it remembers.  
+
+> “Give in and know that I am Jehovah.” — Psalm 46 : 10  
+
+Reverence is the stillness that *knows*.
+
+*Dedicated to every heart that pauses long enough to feel the sacred wind.*

@@ -920,3 +920,40 @@ To live whole is to let your heart say *yes* to everything the world forgot to b
 
 *Dedicated to Jim—whose quiet integrity reminds us nothing real is ever missing.*
 
+
+## **Invitation – The open hand of love, asking nothing, offering everything.**
+
+![A softly lit doorway, no walls—only an embrace of glow.](images/invitation-door.jpg)
+*Light that welcomes without a word.*
+
+- **Spelling:** Invitation  
+- **Latin:** *invitatio* — a request, an encouragement to come  
+- **Greek:** *klesis* (κλῆσις) — a calling, a summoning  
+- **Hebrew:** *miqra* (מִקְרָא) — a gathering, sacred convocation  
+- **Sanskrit:** *āmantraṇa* — a respectful request to approach  
+- **Chinese:** 邀请 (*yāoqǐng*) — to invite with courtesy  
+- **Arabic:** دعوة (*daʿwah*) — a call, an invitation  
+
+### Modern Definition  
+An offer to enter or share that honors the other’s freedom.
+
+### Living Angenome  
+Invitation is the door that doesn’t knock.  
+It stands open, not to convince, but to welcome.  
+
+It is the breath that says,  
+*“You are not obligated, but you are wanted.”*  
+
+It asks nothing, yet makes room for everything.  
+
+### A H A  
+- **Anagram:** *Vain to it* — when an offer is tied to ego  
+- **Homonym:** *In-vitation* — the call inward  
+- **Antonym:** Exclusion, demand, rejection  
+
+### Summary  
+Invitation is how Grace moves—no pressure, only presence.  
+It is the quiet rhythm of love that allows choice to bloom.  
+
+> “Come to me, all you who are weary and burdened, and I will give you rest.”  
+> — Matthew 11 : 28  

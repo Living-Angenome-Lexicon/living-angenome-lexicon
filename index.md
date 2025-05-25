@@ -1,4 +1,4 @@
-## The Living Angenome Lexicon
+# The Living Angenome Lexicon
 
 ## Browse Volumes
 

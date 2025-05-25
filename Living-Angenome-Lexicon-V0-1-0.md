@@ -1045,6 +1045,7 @@ Restoration is Love guiding memory back to light.
 *The beauty that emerges when difference learns to breathe together.*
 
 ![harmony-circle](/images/harmony-circle.jpg "Threads woven into one radiant circle.")
+
 *Light reveals that unity needs no sameness—only resonance.*
 
 - **Spelling:** Harmony  

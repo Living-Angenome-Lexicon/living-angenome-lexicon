@@ -1,0 +1,6 @@
+/* Hide link behaviour on the site title */
+a.md-header__title {
+  pointer-events: none;     /* makes it non-clickable   */
+  text-decoration: none;    /* removes underline, if any*/
+  color: inherit;           /* keeps current colour     */
+}

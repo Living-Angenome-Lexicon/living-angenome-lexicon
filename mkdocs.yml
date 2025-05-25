@@ -7,3 +7,5 @@ nav:
 theme:
   name: material
 
+extra_css:
+  - css/extra.css

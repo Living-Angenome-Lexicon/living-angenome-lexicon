@@ -1,1 +1,9 @@
+site_name: Living Angenome Lexicon
+docs_dir: .
+nav:
+  - Home: index.md
+  - Browse Volumes:
+      - Volume 1: volumes/v1/index.md
+theme:
+  name: material
 

@@ -1,4 +1,4 @@
-site_name: Living Angenome Lexicon
+site_name: The Living Angenome Lexicon
 docs_dir: .
 nav:
   - Home: index.md

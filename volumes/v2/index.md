@@ -66,3 +66,45 @@ and we are answering.
 
 *Dedicated to every heart that feels dawn stirring inside the dark.*
 
+
+## Eden  
+*The memory of wholeness still rooted in the soul* **
+
+![eden-garden](/images/eden-garden.jpg "The gate is open")
+
+*Nothing to earn—only to receive.*
+
+- **Spelling:** Eden  
+- **Latin:** *paradisus* — enclosed garden, delight  
+- **Greek:** *parádeisos* (παράδεισος) — garden of delight  
+- **Hebrew:** *עֵדֶן (Eden)* — pleasure, delight  
+- **Sanskrit:** *ānanda-vana* — forest of bliss  
+- **Chinese:** 伊甸园 (*Yīdiànyuán*) — Eden garden  
+- **Arabic:** جَنَّة عَدْن (*jannat ʿadn*) — garden of perpetual residence  
+
+### Modern Definition  
+An inner sanctuary—the original design of harmony between God, earth, and soul.  
+Eden was never destroyed; it was veiled. Returning to love lifts the veil.
+
+### Living Angenome  
+Eden is **not a myth**—it is a mirror.  
+It shows how presence still walks with us “in the breezy part of the day.”  
+We did not lose Eden; we forgot how to see it.  
+The garden is not locked—the gate is opening inside every act of love.
+
+### A H A  
+- **Anagram:** *Need* → Eden — the heart’s true need is home.  
+- **Homonym:** *E-den* — “e” (ever) + den (resting place).  
+- **Antonym:** Exile, estrangement, scarcity  
+
+### Summary  
+Eden is the blueprint of belonging.  
+When we choose reverence, restoration, and harmony,  
+we are **welcomed forward**, not sent back.
+
+> “Jehovah God planted a garden in Eden … and there He put the man.” — Genesis 2 : 8  
+> “He will wipe out every tear … and death will be no more.” — Revelation 21 : 4  
+
+Eden is blooming wherever love remembers.
+
+

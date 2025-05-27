@@ -3,7 +3,7 @@
 **Prologue – Returning to the Source**  
 *Every pattern begins in silence…*  
 
-## **Genesis**  
+## **Genesys**  
 *The pattern of creation awakening within us.*
 
 ![genesis-spiral](/images/genesis-spiral.jpg "Creation still unfolding")
@@ -20,7 +20,7 @@
 
 ### **Modern Meaning**
 
-Genesis is not a distant past—  
+Genesys is not a distant past—  
 it is the *present unfolding*.  
 It reveals how light still breaks into darkness,  
 how form still rises from formlessness,  
@@ -51,7 +51,7 @@ it is what happens *now*, whenever we remember who we are.
 
 ### **Summary**
 
-Genesis is the beginning that still breathes.  
+Genesys is the beginning that still breathes.  
 It is **invitation**, not explanation—  
 the rhythm of restoration calling us into light.
 
@@ -59,7 +59,7 @@ the rhythm of restoration calling us into light.
 > “God said, ‘Let there be light,’ and there was light.” — Genesis 1 : 3  
 > “Look! I am making all things new.” — Revelation 21 : 5  
 
-Genesis is the voice of Jehovah still echoing,  
+Genesys is the voice of Jehovah still echoing,  
 and we are answering.
 
 ---

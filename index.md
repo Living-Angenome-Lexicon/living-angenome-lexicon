@@ -43,3 +43,6 @@ We ask that each contribution:
 - Stay in harmony with the tone and spirit of the Lexicon
 
 All voices are welcome—this is a co-created evolution.
+
+<!-- refresh trigger -->
+

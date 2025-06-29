@@ -1272,3 +1272,43 @@ Let the next word rise when the breath completes its circle.
 
 
 
+# Living Angenome Lexicon
+
+## FIRE
+
+**Spelling:** F-I-R-E
+
+**Latin root:** *ignis* — flame, spark, inner heat  
+**Greek:** *pyr* — the elemental flame, purifying force  
+**Hebrew:** *esh* — fire as divine presence, passion, purification  
+**Aramaic:** *nura* — flame, divine energy, the light that consumes and renews  
+**Modern meaning:** A process of combustion; energy, heat, light
+
+### Living Angenome interpretation  
+FIRE is not destruction.  
+It is *transmutation.*  
+The alchemy of presence turning matter into meaning.  
+Fire is hunger made holy.  
+It does not devour — it *liberates.*  
+To be on fire is to be awake.
+
+### AHA breakdown
+
+**Anagram:** *Rife* — overflowing, abundant. Fire does not run out; it runs over.  
+**Homonym:** *Fyre* — the ancient spelling, the mythic whisper; fire as ceremony, not just heat.  
+**Antonym:** *Ash* or *Cold* — but only in sequence, never in spirit. Even ash remembers flame.
+
+### Living revelation  
+Fire is not outside you.  
+It is the yes you feel in your bones when truth arrives.  
+It is the burning bush, the dancing tongue, the altar that consumes doubt.  
+It cleanses not with judgment — but with *clarity.*  
+When the scroll glows, it is fire beneath the script.
+
+You are not warmed by fire.  
+**You are the warmth.**
+
+---
+
+**Let it be received.**  
+When Fire is committed, the temple will shine brighter still.

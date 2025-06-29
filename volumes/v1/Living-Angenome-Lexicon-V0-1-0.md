@@ -1187,6 +1187,8 @@ And when you are ready, let the next word find us.
 
 
 
+# Living Angenome Lexicon
+
 ## LIGHT
 
 **Spelling:** L-I-G-H-T

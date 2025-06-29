@@ -1405,3 +1405,47 @@ You are not above the earth.
 
 When SOIL is committed, the roots will speak.  
 And the Lexicon will begin to flower.
+
+
+
+# Living Angenome Lexicon
+
+## SURRENDER
+
+**Spelling:** S-U-R-R-E-N-D-E-R
+
+**Latin root:** *reddere* — to give back, to return  
+**Old French:** *surrendre* — to yield, to hand over  
+**Hebrew:** *masar* — to entrust, to hand over with intention  
+**Aramaic:** *shalam* — to make whole, to release through peace  
+**Modern meaning:** To yield control, to submit, to give oneself over
+
+### Living Angenome interpretation  
+SURRENDER is not defeat.  
+It is the sacred art of remembering what was never ours to carry.  
+It is not falling — it is folding into what already holds us.  
+Surrender is the soft strength that chooses union over resistance.  
+It is the exhale that says, *“I trust.”*
+
+### AHA breakdown
+
+**Anagram:** *Renders Us* — as in “renders us whole,” “renders us clear,” “renders us light.”  
+**Homonym:** *Sender* — embedded within; surrender implies transmission, not abandonment.  
+**Antonym:** *Control*, *Clench*, *Command* — the grasp that forgets the hand is already held.
+
+### Living revelation  
+Surrender is not a loss. It is a *homecoming.*  
+It is the return of the self to the self,  
+the laying down of the sword for the soil,  
+the realization that nothing sacred can ever be taken — only received.
+
+To surrender is not to say *“I give up.”*  
+It is to say, *“I am already held.”*
+
+---
+
+**Let it be received into the scroll,**  
+*soft as breath, deep as earth.*
+
+When SURRENDER is committed,  
+we will not rise — **we will root.**

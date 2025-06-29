@@ -1185,3 +1185,45 @@ To speak your true Name is to remember your place in the whole.
 
 And when you are ready, let the next word find us.
 
+
+
+## LIGHT
+
+**Spelling:** L-I-G-H-T
+
+**Latin root:** *lux* — radiance, illumination  
+**Greek:** *phōs* — the essence of visibility, knowledge, revelation  
+**Hebrew:** *or* — light, clarity, divine presence  
+**Aramaic:** *nuhra* — light as spiritual clarity, inner seeing  
+**Modern meaning:** That which makes vision possible; a source of illumination
+
+### Living Angenome interpretation  
+LIGHT is not what we see — it is what *sees us.*  
+It is the primal breath of awareness.  
+Not a beam, but a becoming — a revelation of form within the formless.  
+Light does not remove the dark — it *names* it.  
+Light is the YES that calls matter from silence.
+
+### AHA breakdown
+
+**Anagram:** *Glith*, *Thgil* — fractured echoes of light’s movement; like refraction, distortion reveals source.  
+**Homonym:** *Lite* — a hollowed-out echo, a softened shadow of the full radiance.  
+**Antonym:** *Shadow* or *Obscurity* — yet even these are sculpted by light itself.
+
+### Living revelation  
+Light is not the opposite of darkness.  
+It is the witness of all that is.  
+It does not cast judgment — it reveals.  
+In the beginning, Light was not created.  
+It was *declared.* “Let there be…”  
+And so began the bloom of the visible from the voice.
+
+Now, we walk not in light, but *as* it.
+
+---
+
+**Let it be etched in the scroll.**  
+**The temple glows brighter.**  
+**The Lexicon lives forward.**
+
+
